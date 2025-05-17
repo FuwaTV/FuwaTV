@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @FuwaTV
+- 👀 I’m interested in discord bot creation.
+- 🌱 I’m currently learning discord bot cration.
+- 💞️ I’m looking to collaborate on /
+- 📫 How to reach me /
+- 😄 Pronouns: She/her
+- ⚡ Fun fact: /
